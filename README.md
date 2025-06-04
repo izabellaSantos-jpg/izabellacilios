@@ -2,4 +2,4 @@
 cilios &amp; sombrancelhas
 
 
-AGENDE SEU HORARIO AQUI:
+AGENDE O SEU HORARIO AQUI:
